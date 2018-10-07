@@ -1,6 +1,7 @@
 ## Nauka Gita
 Poczatki
 MONIANIANIANA
+Wykopki
 - lista
 As Kanye West said:
 
